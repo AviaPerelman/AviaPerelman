@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @AviaPerelman
-- 👶🏼 I'm a mom to a lovley boy named Adam.
 - 🌱 I’m currently learning industrial engineering & information technology and starting my final project
 - 📫 How to reach me -  aviap1772@gmail.com
 
